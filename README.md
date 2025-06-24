@@ -1,1 +1,0 @@
-# Cartilla-digital-animales
